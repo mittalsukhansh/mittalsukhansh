@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 Webdev , AI/ML , Linux<br>⌨ Coding and Music<br>🐱‍💻Trying AI<br>📝Nothing much to say rn<br> MY SITE - https://sm-main.bigboyaks.me/
+💻 Webdev , AI/ML , Linux<br>⌨ Coding and Music<br>🐱‍💻Trying AI<br>📝Nothing much to say rn<br> MY SITE - https://sm-port.bigboyaks.me
 
 
 ## 🌐 Socials:
